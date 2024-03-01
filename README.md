@@ -1,0 +1,2 @@
+# BotW
+Zelda: BotW Blog
